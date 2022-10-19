@@ -1,5 +1,10 @@
-### Olá **pessoal!** 👋
+### **_Hello there, i'm Miguel Tocchetto_** 👋
 
+- 🌱 I’m currently learning 
+- ⚡ Fun fact: I'm an amateur basketball player, I love comedy movies
+
+
+**Connect with me:**
 
 
 <!--
